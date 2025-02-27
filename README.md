@@ -1,3 +1,3 @@
 # TRYY
-TRYY GITHUB //////
+TRYY GITHUB //////:::::::::::
 
